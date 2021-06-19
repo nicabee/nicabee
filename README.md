@@ -1,5 +1,17 @@
-### Hi there 👋
+### Hi!✨
 
+I'm Monica and I'm a BS Information Technology student at the University of San Carlos.
+
+I like to
+- Solve Problems
+- Organize stuff
+- Play Games
+- Be myself! 😊
+
+Reach me via:
+📧 monicabee358@gmail.com
+
+See ya around! 👋
 <!--
 **nicabee/nicabee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
