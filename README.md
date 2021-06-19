@@ -8,7 +8,7 @@ I like to
 - Play Games
 - Be myself! 😊
 
-Reach me via:
+Contact me through email - 
 📧 monicabee358@gmail.com
 
 See ya around! 👋
