@@ -9,7 +9,7 @@ I like to
 - Be myself! 😊
 
 Contact me through email - 
-📧 monicabee358@gmail.com
+📧 barrientosmonicab@gmail.com
 
 See ya around! 👋
 <!--
