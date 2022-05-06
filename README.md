@@ -11,6 +11,8 @@ I like to
 Contact me through email - 
 📧 barrientosmonicab@gmail.com
 
+Or visit my [website](https://monicabarrientos.me/)!
+
 See ya around! 👋
 <!--
 **nicabee/nicabee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
