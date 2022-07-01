@@ -1,6 +1,6 @@
 ### Hi!✨
 
-I'm Monica and I'm a BS Information Technology student at the University of San Carlos.
+I'm Monica and I'm a BS Information Technology graduate from the University of San Carlos.
 
 I like to
 - Solve Problems
